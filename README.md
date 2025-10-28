@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, my name is Maksym! Im a student from Ukraine.
+**Hi, my name is Maksym! Im a student from Ukraine.**
 
 
 ## 🌐 Socials:
